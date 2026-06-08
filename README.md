@@ -1,5 +1,7 @@
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=paperings&label=〢%20&color=2E6F1E&style=flat" alt="paperings" />
-<div align="center"> THE   BAD   ENDING   THAT   LEARNED   2   WIN .
-<div align="center"> <img src="https://cdn.discordapp.com/attachments/1192090985312817263/1387725045526171699/IMG_9813.jpg?ex=6a0b8369&is=6a0a31e9&hm=db09d1371822766c80cec5542464e1ea4a6b0eb6e916b32ecf4f4f4a27860fab&" />
-<div align="center"> READ   BYI   B4   INTERACTING  !!
-<div align="center"> C+H ARE FINE
+<div align="center"> ☆ HAIL TO THE KING , BABY ! ★ 
+<div align="center"> ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+<div align="center"> <img src="https://cdn.discordapp.com/attachments/828038500178853912/1513411318093316137/IMG_7584.jpg?ex=6a27a1a0&is=6a265020&hm=cab681a19c0b547bf2a71a5d0d07e93fbc059437d309cdb4e1996ed316f4b733&" />
+<div align="center"> ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+<div align="center"> ›› GO LOOK AT BYI BEFORE INTERACTIN' .
+<div align="center"> ›› C+H ARE FINE .
