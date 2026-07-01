@@ -6,6 +6,6 @@
 <div align="center"> ╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴
 <div align="center"> -　READ BYI .
 <div align="center"> -　C+H are fine  ⸝  offtab mostly .
-<div align="center"> -  BASIC DNI + ship whiners .
+<div align="center"> -  BASIC DNI + Sark enjoyers , ship whiners , etc .
 <div align="center"> ╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴╴
 <div align="center"> ★ 
